@@ -8,3 +8,4 @@ These are a few of my favorite things:
 - Warm woolen mittens
 
 - Dark sleepy rooms
+- Sunny days
